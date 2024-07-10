@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **priykritv@gmail.com**, **priykrit21100@iiitnr.edu.in**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/15Lu1BCLFFvPtkVOkghGXEmI9KWQHRdXe/view?usp=sharing](https://drive.google.com/file/d/15Lu1BCLFFvPtkVOkghGXEmI9KWQHRdXe/view?usp=sharing)
+- 📄 Know about my experiences [Resume](https://drive.google.com/file/d/1NoJqsDJ4K2O9ksxFz6CcYTHBzcYZkXNT/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
